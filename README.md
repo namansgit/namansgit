@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Ethical hacking
 - 🌱 I’m currently learning ...CC & CS
 - 💞️ I’m looking to collaborate on ...Git
-- 📫 How to reach me ... Whatsapp 9121545821
+- 📫 How to reach me ... Whatsapp 9692626476
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
